@@ -37,5 +37,4 @@ En lo que tiene que ver con la sentencia de este par de monstruos deben ser apli
 #### No nos esperen 
 #### Ya estamos aquí
 
-![Aquí la descripción de la imagen por si no carga](https://yt3.ggpht.com/ytc/AAUvwnj-XLTg9SKRVZ57Nrx-hnbuLJV6nj5BmBXoBwjgnw=s900-c-k-c0x00ffffff-no-rj
-)
+![Aquí la descripción de la imagen por si no carga](https://pbs.twimg.com/profile_images/1288723717380603904/j7ZTS33w_400x400.jpg)
