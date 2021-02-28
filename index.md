@@ -7,6 +7,7 @@
 
 Video primer comunicado #OPTacna [Enlace video](https://youtu.be/aDACorIaxNw)
 
+![Aquí la descripción de la imagen por si no carga](https://i.ibb.co/Zfc0jW3/photo5899784175953754034anti.jpg)
 
 Ciudadanos del Mundo, hermanas y hermanos Anonymous. 
 Desde las sombras siempre estámos observando seres mononeurales y sin alma que construyen historias de dolor, los inicios de estas historias son marcadas por el abuso de personas inocentes. Y al no tener consecuencias en sus inicios terroríficos y creer que la impunidad y la suerte siempre estarán de su lado, no dudan en seguir escribiendo un camino criminal y marcando la vida de otros seres con amargura, destruyendo sueños en su recorrido. 
@@ -37,4 +38,4 @@ En lo que tiene que ver con la sentencia de este par de monstruos deben ser apli
 #### No nos esperen 
 #### Ya estamos aquí
 
-![Aquí la descripción de la imagen por si no carga](https://i.ibb.co/Zfc0jW3/photo5899784175953754034anti.jpg)
+
