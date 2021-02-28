@@ -9,9 +9,7 @@ Video primer comunicado #OPTacna [Enlace video](https://youtu.be/aDACorIaxNw)
 
 ![Aquí la descripción de la imagen por si no carga](https://i.ibb.co/Zfc0jW3/photo5899784175953754034anti.jpg)
 
-| Alineado en el centro | 
-| Comando | 
-| --- |
+
 Ciudadanos del Mundo, hermanas y hermanos Anonymous. 
 Desde las sombras siempre estámos observando seres mononeurales y sin alma que construyen historias de dolor, los inicios de estas historias son marcadas por el abuso de personas inocentes. Y al no tener consecuencias en sus inicios terroríficos y creer que la impunidad y la suerte siempre estarán de su lado, no dudan en seguir escribiendo un camino criminal y marcando la vida de otros seres con amargura, destruyendo sueños en su recorrido. 
 La historia de José Carlos Llanqui Pari no se limita  simplemente a que junto con su hermano Miguel Ángel Llanqui Pari haber abusado sexualmente de sus propios hijos, sino que desde antes de la llegada de estos niños indefensos a este mundo ya empezaba a marcar los que sería el triste desenlace de una historia que inicio como terminó : Matando en vida el alma de los más inocentes.
